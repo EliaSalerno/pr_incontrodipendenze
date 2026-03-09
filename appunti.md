@@ -23,3 +23,7 @@ Bisogna scegliere di vivere!
 Pentimento sulla scelta di sbagliare. 
 
 Se siete pronti a sbagliare sbagliate ma sappiate che le conseguenze ci saranno e saranno un fardello inevitabile. 
+
+la rabbia delle parole di chi ha vissuto questa vita, io un domani voglio diventra qualcuno..
+perchè non farlo già oggi, perchè con la spensieratezza dei 15 anni non si sceglie cosa essere?
+dicono: "Io faccio uso per scappare dai pensieri", non state scappando dal problema state solo evitando il problema. 
