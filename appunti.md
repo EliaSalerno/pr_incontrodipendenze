@@ -20,4 +20,6 @@ In questa età ci si sente invincibili. Io sono capace, prima o poi smetto. e po
 
 Bisogna scegliere di vivere!
 
+Pentimento sulla scelta di sbagliare. 
 
+Se siete pronti a sbagliare sbagliate ma sappiate che le conseguenze ci saranno e saranno un fardello inevitabile. 
